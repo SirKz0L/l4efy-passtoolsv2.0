@@ -9,7 +9,7 @@
  $get install git
  $git clone https://github.com/SirKz0L/l4efy-passtoolsv2.git
  cd SirKz0L
- chmod +rx l4efy
+ chmod +rx 777 l4efy
  ./l4efy
 
 
