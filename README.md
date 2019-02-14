@@ -18,7 +18,7 @@
     Thanks to : Cyber Familly Association - L4EFY - 007 - Noob Cyber  - D35TR0Y SQUAD - ITA - BUFT - ™|BEATDOWN~SYSTEM|™
                 AND ALL ASSOCIATION CYBER IN INDONESIA :)
                 
-Special Thanks To: Allah swt. - My Familly (L4EFY) - SULTAN(Clay BURIQUE) - TUANB4DUT - Mr.x_Phantom - BIG COLA 15 Liter - Rokok Surya Promild and Sampoerna mild - 25JuL
+Special Thanks To: Allah swt. - My Familly (L4EFY) - SULTAN(Clay BURIQUE) - TUANB4DUT - Mr.x_Phantom - BIG COLA 15 Liter - Rokok Surya Promild(Putih) and Sampoerna mild - Kopi - 25JuL
 
 
 
